@@ -1,1 +1,6 @@
-aeaeaea
+asedeje
+ja
+deje
+dejeve 
+tu dejeve
+
